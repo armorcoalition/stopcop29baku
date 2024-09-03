@@ -1,1 +1,0 @@
-# stopcop29baku
